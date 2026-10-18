@@ -1,4 +1,4 @@
-# User manual
+redmi note 14 pro 5g
 
 [[toc]]
 
